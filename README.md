@@ -1,0 +1,1 @@
+# gadni-funkcii
